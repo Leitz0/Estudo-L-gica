@@ -1,0 +1,1 @@
+A mente criativa busca constantemente desafios, e com esses desafios, vai atrás de soluções para assim transforma-los em oportunidades.
